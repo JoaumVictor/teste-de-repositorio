@@ -1,0 +1,6 @@
+# MEU PROJETO AJUDANDO PESSOAS DE CABELO CRESPE
+
+#### ESSA É A DESCRIÇÃO
+
+- conversar
+- correr
